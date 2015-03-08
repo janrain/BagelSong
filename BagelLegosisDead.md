@@ -1,7 +1,5 @@
-Bagel Legosi's Dead
-===================
-
-https://www.youtube.com/watch?v=OKRJfIPiJGY
+[Bagel Legosi's Dead](https://www.youtube.com/watch?v=OKRJfIPiJGY)
+=====================
 
 *White on white neufchâtel cream cheese*  
 *Back in the fridge*  

@@ -1,7 +1,5 @@
-Eat Two Bagels
-==============
-
-https://www.youtube.com/watch?v=4UUPY902Ph0
+[Eat Two Bagels](https://www.youtube.com/watch?v=4UUPY902Ph0)
+================
 
 *I eat two bagels in the morning, I eat two bagels at night*  
 *I eat two bagels in the afternoon, it fills me up alright*  

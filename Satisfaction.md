@@ -1,9 +1,6 @@
-(I Can't Get No) Raisin-Bagel
-=============================
-
-https://www.youtube.com/watch?v=jadvt7CbH1o
-or if you prefer the original
-https://www.youtube.com/watch?v=3a7cHPy04s8
+[(I Can't Get No) Raisin-Bagel](https://www.youtube.com/watch?v=jadvt7CbH1o)
+===============================
+[or if you prefer the original](https://www.youtube.com/watch?v=3a7cHPy04s8)
 
 *I can't get no raisin-bagel*  
 *I can't get me no raisin-bagel*  

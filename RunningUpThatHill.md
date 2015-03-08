@@ -1,7 +1,5 @@
-Running Up That Hill (for a Bagel)
-==================================
-
-https://www.youtube.com/watch?v=wp43OdtAAkM
+[Running Up That Hill (for a Bagel)](https://www.youtube.com/watch?v=wp43OdtAAkM)
+====================================
 
 *And if I only could, I'd make a deal with God*  
 *And I'd get him to bake us bagels*  

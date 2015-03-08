@@ -1,7 +1,5 @@
-Bagel Tragedy
-=============
-
-https://www.youtube.com/watch?v=_Vq6NevcLOQ
+[Bagel Tragedy](https://www.youtube.com/watch?v=_Vq6NevcLOQ)
+===============
 
 *Alone at night*  
 *I am hungry*  

@@ -1,7 +1,5 @@
-Yoo Hoo (for Bagels)
-====================
-
-https://www.youtube.com/watch?v=fsi8s-vpppc
+[Yoo Hoo (for Bagels)](https://www.youtube.com/watch?v=fsi8s-vpppc)
+======================
 
 *Ah yoo-hoo*  
 *Ah yoo-hoo*  

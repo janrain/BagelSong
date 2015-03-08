@@ -1,7 +1,5 @@
-Bagel Bop
-=========
-
-https://www.youtube.com/watch?v=nBUusDv6hXI
+[Bagel Bop](https://www.youtube.com/watch?v=nBUusDv6hXI)
+===========
 
 *Hey ho, bagel*  
 *Hey ho, bagel*  

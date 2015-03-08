@@ -1,7 +1,5 @@
-Bagel in the Bag
-================
-
-https://www.youtube.com/watch?v=JKAH7ZyZD68
+[Bagel in the Bag](https://www.youtube.com/watch?v=JKAH7ZyZD68)
+==================
 
 *Your hand in the cheese*  
 *Bakery charm around your neck*  

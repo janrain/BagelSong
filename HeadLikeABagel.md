@@ -1,7 +1,5 @@
-Head Like a Bagel
-=================
-
-https://www.youtube.com/watch?v=cV2EUUF47Ms
+[Head Like a Bagel](https://www.youtube.com/watch?v=cV2EUUF47Ms)
+===================
 
 *God bagel I'll do anything for you.*  
 *God bagel just tell me what you want me to.*  

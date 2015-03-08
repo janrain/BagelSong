@@ -1,7 +1,5 @@
-Paper Plates
-============
-
-https://www.youtube.com/watch?v=ewRjZoRtu0Y
+[Paper Plates](https://www.youtube.com/watch?v=ewRjZoRtu0Y)
+==============
 
 *I fly like paper, hold food like plates*  
 *If you catch me at the toaster I got visas in my name*  

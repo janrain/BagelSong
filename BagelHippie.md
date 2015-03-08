@@ -1,7 +1,5 @@
-Bagel Hippie
-============
-
-https://www.youtube.com/watch?v=6S71bzLtf98
+[Bagel Hippie](https://www.youtube.com/watch?v=6S71bzLtf98)
+==============
 
 *Walk down, drop out of love,*  
 *Eat the bagel, I'm a hippie,*  

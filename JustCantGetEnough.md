@@ -1,7 +1,5 @@
-Just Can't Get Enough (Bagels)
-==============================
-
-https://www.youtube.com/watch?v=_6FBfAQ-NDE
+[Just Can't Get Enough (Bagels)](https://www.youtube.com/watch?v=_6FBfAQ-NDE)
+================================
 
 *When I'm with you baby*  
 *I go out of my head*  

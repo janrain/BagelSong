@@ -1,7 +1,5 @@
-B.
-==
-
-https://www.youtube.com/watch?v=nQ2x0AUkDdw
+[B.](https://www.youtube.com/watch?v=nQ2x0AUkDdw)
+====
 
 *What's coming through is alive.*  
 *What's holding up is a bagel.*  

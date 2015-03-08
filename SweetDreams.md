@@ -1,7 +1,5 @@
-Sweet Dreams (Are Made of Bagels)
-=================================
-
-https://www.youtube.com/watch?v=qeMFqkcPYcg
+[Sweet Dreams (Are Made of Bagels)](https://www.youtube.com/watch?v=qeMFqkcPYcg)
+===================================
 
 *Sweet dreams are made of wheat*  
 *Who am I to disagree*  

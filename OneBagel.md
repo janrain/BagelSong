@@ -1,7 +1,5 @@
-Queen - One Bagel
-=================
-
-https://www.youtube.com/watch?v=r4UNoECibYk
+[Queen - One Bagel](https://www.youtube.com/watch?v=r4UNoECibYk)
+===================
 
 *One man, one goal,*  
 *One mission.*  

@@ -1,7 +1,5 @@
-Bagel Gone to Heaven
-====================
-
-https://www.youtube.com/watch?v=mK3iSglbZUM
+[Bagel Gone to Heaven](https://www.youtube.com/watch?v=mK3iSglbZUM)
+======================
 
 *There was a roll*  
 *An under water roll who controlled the yeast*  

@@ -1,7 +1,5 @@
-Cold War
-========
-
-https://www.youtube.com/watch?v=lqmORiHNtN4
+[Cold War](https://www.youtube.com/watch?v=lqmORiHNtN4)
+==========
 
 *So you think I'm hungry?*  
 *But being hungry's the only way to be*  
