@@ -21,7 +21,8 @@
 *In your bread.*  
 *Bagel, bagel, bagel el, el, el, oh do,do,do,do,do,do,do,do*  
 
-*Another mother's baking hearth is taking over the appetence causes silence*  
+*Another mother's baking hearth is taking over*  
+*And the appetence causes silence*  
 *We must be mistaken*  
 *It's the same old thing since 2005*  
 *In your head in your bread*  
