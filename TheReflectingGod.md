@@ -51,7 +51,7 @@
 *Toast, toast, toast motherfucker*  
 *Toast, toast, toast motherfucker*  
 
-*Each thing I show you is a piece of my death*  
+*Each bite I take is a piece of my death*  
 
 *No salt bagel, no forgiveness*  
 *No salt bagel, no forgiveness*  
