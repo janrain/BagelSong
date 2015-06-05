@@ -12,7 +12,7 @@
 
 *Wait, they don't love you like i love you*  
 *Wait, they don't love you like i love you*  
-*Ba-a-a-gls, wait! *  
+*Ba-a-a-gels, wait! *  
 *They don't love you like i love you...*  
 
 *Made fresh*  
@@ -27,16 +27,16 @@
 
 *Wait! they don't love you like i love you*  
 *Wait! they don't love you like i love you*  
-*Ba-a-a-gls, wait!*  
+*Ba-a-a-gels, wait!*  
 *They don't love you like i love you...*  
 *Wait! they don't love you like i love you*  
-*Ba-a-a-gls, wait!*  
+*Ba-a-a-gels, wait!*  
 *They don't love you like i love you...*  
 
 *Wait, they don't love you like i love you*  
 *Wait, they don't love you like i love you*  
-*Ba-a-a-a-gls, wait! *  
+*Ba-a-a-a-gels, wait! *  
 *They don't love you like i love you...*  
 *Wait, they don't love you like i love you*  
-*Ba-a-a-a-gls, wait!*  
+*Ba-a-a-a-gels, wait!*  
 *They don't love you like i love you...*  
