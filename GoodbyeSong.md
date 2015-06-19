@@ -3,7 +3,7 @@
 
 *Ya I'm a put your cream cheese on the counter*  
 *Leave your salt and take my butter*  
-*There's nothing left to say so long *  
+*There's nothing left to say so long*  
 *This is your bagel bagel song*  
 *La la la la la*  
 *This is your bagel song*  
@@ -24,7 +24,7 @@
 
 *Ya I'm a put your cream cheese on the counter*  
 *Leave your salt and take my butter*  
-*There's nothing left to say so long *  
+*There's nothing left to say so long*  
 *This is your bagel bagel song*  
 *I used the toaster on floor two*  
 *You can find it waiting there for you*  
@@ -50,7 +50,7 @@
 
 *Ya I'm a put your cream cheese on the counter*  
 *Leave your salt and take my butter*  
-*There's nothing left to say so long *  
+*There's nothing left to say so long*  
 *This is your bagel bagel song*  
 *I used your toaster on floor two*  
 *You can find it waiting there for you*  
@@ -83,7 +83,7 @@
 
 *Ya I'm a put your cream cheese on the counter*  
 *Leave your salt and take my butter*  
-*There's nothing left to say so long *  
+*There's nothing left to say so long*  
 *This is your bagel bagel song*  
 *I used your toaster on floor two*  
 *You can find it waiting there for you*  
