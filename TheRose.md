@@ -15,7 +15,7 @@ A friend
 is someone who knows  
 the flavor in your heart  
 and toasts it for you when you forget the taste  
-Attack*  
+Attack  
 
 *When the night has been too lonely and the road has been too long*  
 *When you think that love is only for the lucky and for the strong*  
