@@ -10,7 +10,7 @@
 *It's the one who won't baking, who cannot seem to toast*  
 *And the dough afraid of falling, who never learns to rise*  
 
-Spoken:
+(spoken)  
 A friend  
 is someone who knows  
 the flavor in your heart  
