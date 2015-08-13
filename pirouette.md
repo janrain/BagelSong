@@ -25,12 +25,12 @@
 *All of these spreads float around and ricochet*
 *Like a storm, when it's thrown out over the sea*
 *As I roll, as I grow doughier than I used to be*
-**
+
 *Bread is sweet and it calls you again*
 *To bring you back from where you've been*
 *Now I see perfectly through all the shmear*
 *What I needed the most was a bagel here*
-**
+
 *[Chorus]*
 
 *You will taste my bread*
