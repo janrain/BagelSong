@@ -28,6 +28,8 @@
 
 
 *[Chorus]*
+
+
 *If I ever let you down*
 
 *If I ever let you down*
