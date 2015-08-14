@@ -11,7 +11,7 @@
 
 *From the crease of your mouth to the picket fences*
 
-*All the bread, stretching out, blurring my defenses*
+*All the dough, stretching out, blurring my defenses*
 
 *Dignity, diligence, I can not avenge*
 
