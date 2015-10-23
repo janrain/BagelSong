@@ -31,7 +31,7 @@
 
 *Bagels in my eyes*  
 *It's a wonderful surprise*  
-*To see your food finally arive*  
+*To see your food finally arrive*  
 *Toasting 'til it's brown*  
 *And just smiling at the sound*  
 *And you reach for cream cheese*  
