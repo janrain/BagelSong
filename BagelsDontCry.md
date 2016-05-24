@@ -8,9 +8,9 @@
 *Been too unkind*
 
 *I try to laugh about it*  
-*Cover it all up with shmear*  
+*Cover it all up with schmear*  
 *I try and laugh about it*  
-*Spreading the shmear in my eyes*  
+*Spreading the schmear in my eyes*  
 *'Cause bagels don't cry*  
 *Bagels don't cry*
 
@@ -21,9 +21,9 @@
 *And now there's nothing I can do*
 
 *So I try to laugh about it*  
-*Cover it all up with shmear*  
+*Cover it all up with schmear*  
 *I try to laugh about it*  
-*Spreading the shmear in my eyes*  
+*Spreading the schmear in my eyes*  
 *'Cause bagels don't cry*
 
 *I would tell you that I was full*  
@@ -39,7 +39,7 @@
 *Now I would eat most anything*  
 *To get you back by my side*  
 *But I just keep on laughing*  
-*Hiding the shmear in my eyes*  
+*Hiding the schmear in my eyes*  
 *'Cause bagels don't cry*  
 
 *Bagels don't cry*  
