@@ -40,7 +40,7 @@
 *To get you back by my side*  
 *But I just keep on laughing*  
 *Hiding the schmear in my eyes*  
-*'Cause bagels don't cry *  
+*'Cause bagels don't cry*  
 
 *Bagels don't cry*  
 *Bagels don't cry*  
